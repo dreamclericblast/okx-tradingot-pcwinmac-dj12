@@ -1,4 +1,4 @@
-# 
+# VIP okx trading bot plantillas for Mac OS | Élite okx trading bot plantillas for PC Windows. Featuring API de intercambio centralizado and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
